@@ -1,4 +1,5 @@
-this is cfvhjnklmù^jhgfc
-xdfcghjklmù
+this is cfvhjnklmÃ¹^jhgfc
+xdfcghjklmÃ¹
 45
-fghjlpoiuycghjm^poiuytdsfguiopàiutdrtyuiopàç_è-edfg
+fghjlpoiuycghjm^poiuytdsfguiopÃ iutdrtyuiopÃ Ã§_Ã¨-edfg
+fuck u bro
